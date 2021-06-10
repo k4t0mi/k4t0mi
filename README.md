@@ -1,4 +1,4 @@
- Hi, I’m @k4t0mi a cybersecurity consulter
+ Hi, I’m @k4t0mi an Information security consultant
 
 **Tech Saves Us All**
 
